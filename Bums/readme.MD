@@ -6,7 +6,8 @@
 - Group: [Link](t.me/KeoAirDropFreeNe)
 - Channel: [Link](t.me/KeoAirDropFreeNee)
 
-> > > Help me with your referral [Link](https://t.me/bums/app?startapp=ref_OVMEplvN)
+> > > Help me with your referral [Link](https://t.me/bums/app?startapp=ref_OVMEplvN-go_ganginfo_1854937255193260033
+)
 
 ## 🚀 Getting Started
 
